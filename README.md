@@ -10,7 +10,7 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 Vai Corinthians!!!🖤 🤍
 
-![](https://tenor.com/pt-BR/view/corinthians-gif-22366027)
+![](https://media1.tenor.com/m/3aCImrMYRX4AAAAC/corinthians.gif)
 
 <!--
 **gustavolima3a/gustavolima3a** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
